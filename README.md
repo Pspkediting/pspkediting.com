@@ -1,1 +1,1 @@
-# pspkediting.com
+# pspkeditingtelugu.com
